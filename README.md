@@ -33,5 +33,5 @@
 
 ## 📫 Contact Me
 - Email: omar12mohamed2005@gmail.com
-- LinkedIn: https://linkedin.com/in/omar-mohammed
-- Instagram: https://instagram.com/YOUR_USERNAME
+- LinkedIn: https://www.linkedin.com/in/omar-mohammed-5o
+- Instagram: https://bit.ly/3PwgDFU
